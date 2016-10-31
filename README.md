@@ -1,3 +1,3 @@
 # HTG-
 Option
-Rebate on BATS and C@
+Rebate on BATS and C2
